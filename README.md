@@ -4,16 +4,27 @@ Replace, or rather, Restore Final form theme for the final form attack (R2) in B
 
 
 Agito Shining: AGITO 24.7
+
 Ryuki Survive: Alive a Life Adven Mix
+
 Faiz Blaster: EGO - Eye Glazing Over or Justifaiz Acel Mix
+
 Hyper Kabuto: Full Force
+
 Kiva Emperor: Supernova
+
 Decade Complete: Ride the Wind
+
 W Extreme: Extreme Dream
+
 OOO Putotera: Power to Tearer
+
 Fourze Cosmic: Cosmic Mind
+
 Wizard infinity: Missing Piece
+
 Gaim Kachidoki: Exciting X Attitude or Raise up Your Flag
+
 
 I have not finish Hibiki, Blade, Den-O, so can't say what's the final theme for them are.
 
